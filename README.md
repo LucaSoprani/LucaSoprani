@@ -16,8 +16,11 @@ I speak both **Portuguese (Brazilian)** and **English**, and I’m currently lea
 
 ## 💡 What you'll find here  
 
-- 🚀 **Projects:** Personal experiments and ideas in progress.  
-- 🌱 **Learning:** Always exploring new tools and improving my skills.  
+- 🚀 **Projects:** Personal experiments, innovative ideas, and ongoing development. I love to bring my creative concepts to life and experiment with new technologies.  
+
+- 🌱 **Learning:** I'm constantly exploring new tools, enhancing my skillset, and staying up-to-date with the latest trends. Whether it's coding, design, or tech in general, I thrive on growth and improvement.  
+
+- 🎮 **Hobbies:** I'm passionate about video games, and I believe they help me stay sharp and creative. Whether it's exploring new worlds, strategizing with friends, or just relaxing with a good game, gaming is a big part of my life. Also, I'm a committed individual who always strives to give my best in everything I do, whether in my projects or my personal interests.
 
 ---
 
