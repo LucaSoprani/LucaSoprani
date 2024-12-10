@@ -32,7 +32,7 @@ I speak both **Portuguese (Brazilian)** and **English**, and I’m currently lea
 
 ## 📬 Contact  
 
-If you'd like to reach out, just click the icon below!  
+If you'd like to reach out, just click the icon below! Or right-click and copy the email address.
 
 <div align="center">
   <a href="mailto:luca48531@gmail.com">
